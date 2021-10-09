@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hoaitran308 aka Hoai Tran.
-- 📫 You can contact me by facebook (fb.com/VanHoai.308) or email (tranvanhoai.tt4@gmail.com).
+- 📫 You can contact me via facebook (fb.com/VanHoai.308) or email (tranvanhoai.tt4@gmail.com).
 - <3 Hope you have a nice day!
 
 <!---
